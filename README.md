@@ -1,2 +1,0 @@
-# rizka-aras
-Wedding Invitation
